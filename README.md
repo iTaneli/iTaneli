@@ -2,4 +2,4 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning JavaScript
 - 💞️ I’m looking to collaborate on -
-- 📫 How to reach me Discord: tanelii | i might respond slowly
+- 📫 How to reach me Discord: Tanezzz | i might respond slowly
